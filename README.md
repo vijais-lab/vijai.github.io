@@ -1,1 +1,1 @@
-# vijai.github.io
+# TechEaseElectronics.github.io
